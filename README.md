@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lokoderaw
-- 👀 I’m interested in ...wwer
+- 👀 I’m interested in ...wwerdsf
 - 🌱 I’m currently learning ...21
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
