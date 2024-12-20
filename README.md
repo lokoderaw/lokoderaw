@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ...4641232
-- ⚡ Fun fact: ...45dgfdsaaf
+- ⚡ Fun fact: ...45dgfdsaafrr
 543dsf
 <!---2
 lokoderaw/lokoderaw is a ✨ special ✨ repository because its `README.md` (this file) appears onfff your GitHub profile.wer
