@@ -1,6 +1,6 @@
-gxcxzgb6336- 👋 Hi, I’m @lokoderaw
+jgxcxzgb6336- 👋 Hi, I’m @lokoderaw
 - 👀 I’m interested in ...wwerdsfewq
-- 🌱 I’m currently learning ...21wre
+- 🌱 I’m currently learning ...21wreyj
 - 💞️ I’m looking to collaborate on ...dsffsd
 - 📫 How to reach me ...88gdsffgfreretwqe
 - ⚡ Fun fact: ...45dgfdsaafrrsfs02nhnhhgr
