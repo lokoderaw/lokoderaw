@@ -1,7 +1,7 @@
 hgghhgnbregerlhggcxcxd43jgxcxzgb6336- 👋 Hi, I’m @lokoderaw
 - 👀 I’m interested in ...wwerdsfewq
 - 🌱 I’m currently learning ...21wreyj5162
-- 💞️ I’m looking to collaborate on ...dsffsdbtggfdggfvxclkklkvdf
+- 💞️ I’m looking to collaborate on ...dsffsdbtggfdggfvxclkklkvdfngnggn
 - 📫 How to reach me ...88gdsffgfreretwqerttyyt34terw26fgrgerhgnghwrewbvcnbv
 - ⚡ Fun fact: ...45dgfdsaafrrsfs02nhnhhgr6+ewwsdsds
 543dsfresdfsefxcvasdsmjjhgfbgfnhhn
